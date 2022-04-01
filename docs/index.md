@@ -11,6 +11,7 @@
 |14:00 |8er Mechanics |Karsten
 |15:30 |Pause |
 |16:00 |Aktive Session in der Halle |
+|18:00 |If you don't know now you know |
 | |Abendessen |
 
 ## Sonntag
